@@ -1,1 +1,1 @@
-# NTUST_application-documents
+此處為台科大資管所備審資料所在地
